@@ -1,0 +1,2 @@
+# hello-world
+Due to the large amount of ignorance, misinformation, and racism surrounding First Nation’s water access in rural communities, our purpose for the study was to examine if an informational intervention which in our study took to the form of video clips, statistics, and interviews of the affected populous could produce a change in an individual’s stance regarding these First Nation’s water issues. 
